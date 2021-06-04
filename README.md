@@ -1,5 +1,13 @@
 # Greetings-Earthlings
 Learning;Growing;Evolving
 
-<h1>Dave Archer</h1>
-<p>I amy actually decide to change the last name to Archer, others may feel it incredibly silly, I don't completely disagree.</p>
+<h2>Dave Archer</h2>
+<br />
+<br />
+<p>I will not stop adding to this every day. - D
+  @2115-6.3.21
+  
+  </p>
+  <br />
+  <br />
+  
